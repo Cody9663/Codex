@@ -1,0 +1,11 @@
+"Dear Marty If, my calculations are correct, you will receive this letter immediately after you saw the DeLorean struck by lightning.
+First, let me assure you that I am alive and well. I've been living happily these past eight months in the year 1885. The lightning bolt that hit the DeLorean caused a jigowatt overload which scrambled the time circuits, activated the flux capacitor, and sent me back to 1885. 
+The overload shorted out the time circuits and destroyed the flying circuits. Unfortunately, the car will never fly again.
+I set myself up as a blacksmith as a front while I attempted to repair the damage to the time circuits. Unfortunately, this proved impossible because suitable replacement parts will not be invented until 1947. 
+However, I've gotten quite adept at shoeing horses and fixing wagons.
+I have buried the DeLorean in the abandoned Delgado Mine, adjacent to the old Boot Hill Cemetery, as shown on the enclosed map. Hopefully, it should remain undisturbed and preserved until you uncover it in 1955. Inside, you will find repair instructions. 
+My 1955 counterpart should have no problem repairing it so that you can drive it back to the future. Once you have returned to 1985, destroy the time machine.
+Do not — I repeat — do not attempt to come back here to get me. I am perfectly happy living in the fresh air and wide-open spaces, and I fear that unnecessary time travel only risks further disruption of the space-time continuum. 
+And please take care of Einstein for me. I know that you will give him a good home. Remember to walk him twice a day, and that he only likes canned dog food. These are my wishes; please respect them and follow them.
+And so, Marty, I now say farewell and wish you Godspeed. You've been a good, kind, and loyal friend to me, and you've made a real difference in my life. I will always treasure our relationship and think on you with fond memories, warm feelings, and a special place in my heart.
+-Your friend in time Emmett L. Brown September 1, 1885"
